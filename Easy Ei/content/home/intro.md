@@ -1,1 +1,0 @@
-Need help? Find out in less than 5 minutes.
